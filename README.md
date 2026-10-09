@@ -1,0 +1,2 @@
+# SchoolPay
+Online toʻlov
